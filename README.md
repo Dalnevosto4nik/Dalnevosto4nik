@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dalnevosto4nik
-- 👀 I’m interested in sail and kite..  wake... and Swift;)
+- 👀 I’m interested in sail.. kite... wakeboard.... and Swift;)
 - 🌱 I’m currently learning Swift
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
